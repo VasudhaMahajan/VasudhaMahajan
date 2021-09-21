@@ -2,7 +2,7 @@
 
 MS CS student @ USC :zap:
 
-Last worked at Citi
+Last worked @ Citi
 
 #### Connect with me 
 
